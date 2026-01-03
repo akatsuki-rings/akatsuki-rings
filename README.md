@@ -1,4 +1,5 @@
-wip
+subsys with multiple origins.
+can't fathom plurality in non fully-traumagenic systems? hit the block button 
 
 
 [most important video of all time](https://www.youtube.com/watch?v=VTToQW4Twg8)

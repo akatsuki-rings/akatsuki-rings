@@ -1,6 +1,6 @@
 subsys with multiple origins.
 
-can't fathom plurality in non fully-traumagenic systems? hit the block button idk dude 
+can't fathom plurality & non fully-traumagenic systems? hit the block button idk dude 
 ***
 
 whyd she do that is she stupid vv

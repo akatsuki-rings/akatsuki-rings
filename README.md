@@ -3,7 +3,11 @@
 
 ***
 
-![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=MelonOctoling) 
+plural subsys , syscourse fuck off we're not here to debate who's real or not . 
+
+[rentry](https://rentry.co/lady-angel) , [atabook](https://melonoctoling.atabook.org) , [strawpage](https://melonoctoling.straw.page/amegakure)
+
+ ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=MelonOctoling) 
 
 
 

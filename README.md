@@ -1,13 +1,9 @@
-subsys with multiple origins.
 
-can't fathom plurality & non fully-traumagenic systems? hit the block button idk dude 
+<img src="Untitled1276_20260301112908.png" width=1280 height=720>
 
-Currently working on making this not so fugly :)
 ***
 
-whyd she do that is she stupid vv
-
-<img src="frognan.png" height=554 width=402> ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=MelonOctoling) 
+![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=MelonOctoling) 
 
 
 

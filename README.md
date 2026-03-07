@@ -16,6 +16,13 @@ Most played weapons: <br>
 Splashtag: <br>
 <img src="2025010102234200 4CE9651EE88A979D41F24CE8D6EA1C23.png">
 
+Splatlings progress: <br>
+1★ 15/15 <br>
+2★ 9/15 <br> 
+3★ 7/15 <br> 
+4★ 5/15 <br> 
+5★ 0/15 <br> 
+
 ***
 
  ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=MelonOctoling)

@@ -7,9 +7,6 @@
 
 plural subsys , syscourse fuck off
 
-
-![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=MelonOctoling) 
-
 ***
 
 Splatoon 3 stats (outdated usually): <br>
@@ -18,6 +15,9 @@ Most played weapons: <br>
 <img src="S3_Badge_Splatterscope_4.png" width=64 height=64> <img src="S3_Badge_Hydra_Splatling_4.png" width=64 height=64> <img src="S3_Badge_Forge_Splattershot_Pro_4.png" width=64 height=64> <br>
 Splashtag: <br>
 <img src="2025010102234200 4CE9651EE88A979D41F24CE8D6EA1C23.png">
- 
+
+***
+
+ ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=MelonOctoling)
 
 

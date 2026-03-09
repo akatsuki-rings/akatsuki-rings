@@ -3,6 +3,8 @@
 
 ***
 
+@caninepoetry ♡ Mar.9.2026 🥹🥹🥹🫶
+
 [rentry](https://rentry.co/lady-angel) , [atabook](https://melonoctoling.atabook.org) , [strawpage](https://melonoctoling.straw.page/amegakure)
 
 plural subsys , syscourse fuck off

@@ -12,7 +12,7 @@ plural subsys , syscourse fuck off
 ***
 
 Splatoon 3 stats (outdated usually): <br>
-LVL: 127 - Rank: A+ (highest S) - Turf inked: 5,899,650p - Total wins: 4,030 - Badges: 124 / 1,542 <br>
+LVL: 127 - Rank: A+ (highest S) - Turf inked: 5,954,916p - Total wins: 4,068 - Badges: 126 / 1,542 - Shifts worked: 1002 <br>
 Most played weapons: <br>
 <img src="S3_Weapon_Main_Splatterscope_2D_Current.png" width=64 height=64> <img src="S3_Weapon_Main_Hydra_Splatling_2D_Current.png" width=64 height=64> <img src="S3_Weapon_Main_Forge_Splattershot_Pro_2D_Current.png" width=64 height=64> <br>
 Splashtag: <br>
@@ -22,7 +22,7 @@ Splatlings progress: <br>
 1★ 15/15 <br>
 2★ 9/15 <br> 
 3★ 7/15 <br> 
-4★ 5/15 <br> 
+4★ 6/15 <br> 
 5★ 0/15 <br> 
 
 ***

@@ -20,7 +20,7 @@ Splashtag: <br>
 
 Splatlings progress: <br>
 1★ 15/15 <br>
-2★ 9/15 <br> 
+2★ 10/15 <br> 
 3★ 7/15 <br> 
 4★ 6/15 <br> 
 5★ 0/15 <br> 

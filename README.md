@@ -3,9 +3,9 @@
 
 ***
 
-@caninepoetry ♡ Mar.9.2026 🥹🥹🥹🫶
+<div align="center"> @caninepoetry ♡ Mar.9.2026 🥹🥹🥹🫶
 
-[rentry](https://rentry.co/lady-angel) , [atabook](https://melonoctoling.atabook.org) , [strawpage](https://melonoctoling.straw.page/amegakure)
+ [rentry](https://rentry.co/lady-angel) , [atabook](https://melonoctoling.atabook.org) , [strawpage](https://melonoctoling.straw.page/amegakure) <center>
 
 plural subsys , syscourse fuck off
 
@@ -27,6 +27,6 @@ Splatlings progress: <br>
 
 ***
 
- ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=MelonOctoling)
+ ( ^: :^ ) ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=MelonOctoling)
 
 

@@ -1,9 +1,8 @@
-
-<img src="Untitled1276_20260301112908.png" width=1280 height=720>
+<div align="center">
+<img src="Untitled1276_20260301112908.png" width=853 height=480>
 
 ***
 
-<div align="center"> 
 <code style="color : White"> ♡ Mar.9.2026 🥹🥹🥹🫶 </code>
 
  [rentry](https://rentry.co/lady-angel) , [atabook](https://melonoctoling.atabook.org) , [strawpage](https://melonoctoling.straw.page/amegakure) <center>

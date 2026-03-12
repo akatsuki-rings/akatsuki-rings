@@ -3,7 +3,8 @@
 
 ***
 
-<div align="center"> @caninepoetry ♡ Mar.9.2026 🥹🥹🥹🫶
+<div align="center"> 
+<code style="color : White"> ♡ Mar.9.2026 🥹🥹🥹🫶 </code>
 
  [rentry](https://rentry.co/lady-angel) , [atabook](https://melonoctoling.atabook.org) , [strawpage](https://melonoctoling.straw.page/amegakure) <center>
 

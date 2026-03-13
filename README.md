@@ -11,7 +11,7 @@ plural subsys , syscourse fuck off !! <br>
 uncomfortable around obito fans because mental illness and i'm Konan³ but don't take it personally 🥹 /g
 
 ***
-
+Often open to play splatoon 3 (or 2)<br>
 Splatoon 3 stats (outdated usually): <br>
 LVL: 127 - Rank: A+ (highest S) - Turf inked: 5,954,916p - Total wins: 4,068 - Badges: 126 / 1,542 - Shifts worked: 1002 <br>
 Most played weapons: <br>

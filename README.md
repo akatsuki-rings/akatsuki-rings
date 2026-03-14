@@ -8,8 +8,6 @@
  [rentry](https://rentry.co/lady-angel) , [atabook](https://melonoctoling.atabook.org) , [strawpage](https://melonoctoling.straw.page/amegakure) <center>
 
 plural subsys , syscourse fuck off !! <br>
-uncomfortable around obito fans because mental illness and i'm Konan³ but don't take it personally 🥹 /g
-
 ***
 Often open to play splatoon 3 (or 2)<br>
 Splatoon 3 stats (outdated usually): <br>

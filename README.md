@@ -1,7 +1,9 @@
 <div align="center">
-<img src="Untitled1276_20260301112908.png" width=853 height=480>
- 
-<code style="color : White"> 〝 I am I, and you are you, and the old life that we lived so fondly together is untouched, unchanged. 〞 </code>
+<img src="frognan.png" width=200 height=300> <br>
+^^  <br>
+placeholder until i make a new graphic
+
+<code style="color : White"> ^_^ </code>
 
 ***
 
@@ -32,6 +34,6 @@ Splatlings progress:<br>
 
  ***
 
- <code style="color : White"> 〝 How we shall laugh at the trouble of parting when we meet again! 〞 </code>
+ <code style="color : White"> [Or is it raining again?](https://music.youtube.com/watch?v=RzGxTJwPOk0&si=nGVrSg9W5ofC7658) </code>
 
 

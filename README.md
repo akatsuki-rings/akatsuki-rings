@@ -1,17 +1,20 @@
 <div align="center">
-<img src="frognan.png" width=200 height=300> <br>
+<img src="frognan.png" width=250 height=300> <br>
 ^^  <br>
 placeholder until i make a new graphic
 
 <code style="color : White"> ^_^ </code>
 
 ***
-
 <code style="color : White"> ♡ Mar.9.2026 🥹🥹🥹🫶 </code>
 
- [rentry](https://rentry.co/lady-angel) , [atabook](https://melonoctoling.atabook.org) , [strawpage](https://melonoctoling.straw.page/amegakure) <center>
+[rentry](https://rentry.co/lady-angel) , [atabook](https://melonoctoling.atabook.org) , [strawpage](https://melonoctoling.straw.page/amegakure) 
 
-plural subsys , syscourse fuck off !! <br>
+17 , en / fr , gnc & queer ,  <br>
+mentally & physically ill , plural <br>
+***
+ ( ^: :^ ) ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=MelonOctoling)
+
 ***
 Often open to play splatoon 3 (or 2)<br>
 Splatoon 3 stats (outdated usually): <br>
@@ -29,10 +32,6 @@ Splatlings progress:<br>
 5★ 0/15 <br> 
 
 ***
-
- ( ^: :^ ) ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=MelonOctoling)
-
- ***
 
  <code style="color : White"> [Or is it raining again?](https://music.youtube.com/watch?v=RzGxTJwPOk0&si=nGVrSg9W5ofC7658) </code>
 

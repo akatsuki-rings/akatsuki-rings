@@ -10,8 +10,10 @@ placeholder until i make a new graphic
 
 [rentry](https://rentry.co/lady-angel) , [atabook](https://melonoctoling.atabook.org) , [strawpage](https://melonoctoling.straw.page/amegakure) 
 
-17 , en / fr , gnc & queer ,  <br>
-mentally & physically ill , plural <br>
+ 17 , en / fr , gnc & queer , taken  <br>
+ mentally ill & phys issues , plural <br>
+⌜ usually unfriendly to strangers & dry to acquaintances ⌟ <br>
+
 ***
  ( ^: :^ ) ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=MelonOctoling)
 

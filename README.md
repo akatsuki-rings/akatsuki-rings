@@ -1,21 +1,22 @@
 <div align="center">
-<img src="frognan.png" width=250 height=300> <br>
-^^  <br>
-placeholder until i make a new graphic
 
-<code style="color : White"> ^_^ </code>
+ ![u](https://github.com/user-attachments/assets/b4866dfe-a623-42f6-8240-b2baccb21baf)
+
+
+<code style="color : White"> Become [emotional and it's goodbye](https://music.youtube.com/watch?v=QprnVxCveSY&si=I5gtf0Mi243QDTXV), go faster and farther than anyone else, come on.  </code>
 
 ***
-<code style="color : White"> ♡ Mar.9.2026 🥹🥹🥹🫶 </code>
+<code style="color : White"> [♡](https://rentry.co/lord-pain) Mar.9.2026 🥹🥹🥹🫶 </code>
 
 [rentry](https://rentry.co/lady-angel) , [atabook](https://melonoctoling.atabook.org) , [strawpage](https://melonoctoling.straw.page/amegakure) 
 
  17 , en / fr , gnc & queer , taken  <br>
  mentally ill & phys issues , plural <br>
-⌜ usually unfriendly to strangers & dry to acquaintances ⌟ <br>
+︲ usually unfriendly to strangers & dry to acquaintances ︲ <br>
 
 ***
- ( ^: :^ ) ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=MelonOctoling)
+ ( ^: :^ ) <br>
+ ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=MelonOctoling)
 
 ***
 Often open to play splatoon 3 (or 2)<br>
@@ -35,6 +36,6 @@ Splatlings progress:<br>
 
 ***
 
- <code style="color : White"> [Or is it raining again?](https://music.youtube.com/watch?v=RzGxTJwPOk0&si=nGVrSg9W5ofC7658) </code>
+ <code style="color : White"> I'm not going back, I don't have anything else anyway. </code>
 
 

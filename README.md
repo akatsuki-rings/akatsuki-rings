@@ -28,7 +28,7 @@ plural ... um not sure what else we need to put here now <br>
 
 <details>
   
-<summary> splatoon stuff (click here) </summary>
+<summary> splatoon stats (click here) </summary>
 
 ### Often open to play splatoon 3 (or 2)
 

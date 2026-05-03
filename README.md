@@ -46,11 +46,10 @@ Splatlings progress:<br>
 4★ 6/15 <br> 
 5★ 0/15 <br> 
 
+</details>
 
 the splakatsuki is reaaalllll!!!!!!!!!! <br>
 ![splakatsuki isnt real it cant hurt u the splakatsuki](https://i.postimg.cc/0jNcbt41/Untitled1320-20260503163957.png)
-
-</details>
 
 </details>
 

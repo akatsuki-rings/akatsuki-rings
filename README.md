@@ -33,7 +33,7 @@ plural ... um not sure what else we need to put here now <br>
 ### Often open to play splatoon 3 (or 2)
 
 Splatoon 3 stats (outdated usually): <br>
-LVL: 129 - Rank: A+ (highest S) - Turf inked: 5,987,378p - Total wins: 4,089 - Badges: 127 / 1,542 - Shifts worked: 1045 <br>
+LVL: 130 - Rank: A+ (highest S) - Turf inked: 6,034,160p - Total wins: 4,109 - Badges: 128 / 1,542 - Shifts worked: 1049 <br>
 Most played weapons: <br>
 <img src="S3_Weapon_Main_Splatterscope_2D_Current.png" width=64 height=64> <img src="S3_Weapon_Main_Hydra_Splatling_2D_Current.png" width=64 height=64> <img src="S3_Weapon_Main_Forge_Splattershot_Pro_2D_Current.png" width=64 height=64> 
 
